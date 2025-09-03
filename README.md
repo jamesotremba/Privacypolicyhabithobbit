@@ -1,0 +1,2 @@
+# Privacypolicyhabithobbit
+privacy policy
